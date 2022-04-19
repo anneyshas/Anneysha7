@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Anneysha7
+- 👋 Hi, I’m Anneysha!
 - 👀 I’m interested in languages. I am an aspiring hobby translator!
 - 🌱 I’m currently learning human and computer languages.
 - 💞️ I’m looking to collaborate on ... (will update when I am looking for collaborators)
